@@ -1,2 +1,1 @@
-2029-10-01
-:cry:
+It was nice talking to you.
