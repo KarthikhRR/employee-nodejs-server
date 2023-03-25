@@ -1,1 +1,1 @@
-uSNiBybzfy
+cursus_42
