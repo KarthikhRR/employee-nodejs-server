@@ -1,1 +1,1 @@
-Pleased to make your acquaintance.
+Looking forward to working with you.
