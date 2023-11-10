@@ -1,2 +1,0 @@
-XKnbrkGyrA
-ternary-tree-wasm
