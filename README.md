@@ -1,1 +1,1 @@
-qZYzovXQX
+sword-frontend
