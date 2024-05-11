@@ -1,2 +1,1 @@
-SYym7hEpd8v
-I’ve enjoyed meeting you!
+Nice to hear from you!
