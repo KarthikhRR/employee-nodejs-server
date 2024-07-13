@@ -1,3 +1,1 @@
-TDDE05
-:zipper_mouth_face:
-It was nice meeting you!
+2015-06-01
