@@ -1,2 +1,1 @@
-x1rrhmO7N
-spring-jpa-mybatis
+2024-01-09
